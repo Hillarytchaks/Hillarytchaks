@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Hillarytchaks
-- 👀 I’m interested in Politics and Tech
+- 👀 I’m interested in Finance and Tech
 - 🌱 I’m currently an Engineering Student
 - 💞️ I’m looking to collaborate on any project that help me learn and grow
 - 📫 How to reach me . insta: @gefahrlich-ary
